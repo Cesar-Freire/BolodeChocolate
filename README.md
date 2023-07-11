@@ -42,3 +42,7 @@ O **bolo de chocolate fácil** é finalizado com uma ***cobertura*** que deixa o
 ---
 
 >#### **Cobertura**
+
+1. Em uma panela, coloque 1 e meia xícara de chá de leite, meia xícara de chá de chocolate em pó, 1 colher de sopa de manteiga e 1 xícara de chá de açúcar. Misture, ligue o fogo e deixe ferver.
+   
+2. Despeje a calda no bolo ainda quente e sirva em seguida.
