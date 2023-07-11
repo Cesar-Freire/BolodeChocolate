@@ -1,3 +1,9 @@
+# Bolo De Chocolate
+
+O **bolo de chocolate** é um queridinho dos brasileiros. Esta receita é fácil, simples e combina com um ***cafezinho no lanche da tarde***. Para preparar a **massa do bolo**, você vai precisar de chocolate em pó, farinha de trigo, açúcar, ovos, fermento em pó e óleo.
+
+O **bolo de chocolate fácil** é finalizado com uma ***cobertura*** que deixa o bolo bastante molhadinho e saboroso. Saiba como preparar a receita!
+
 ### Ingredientes
 ---
 
